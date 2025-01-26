@@ -37,8 +37,8 @@ I’m always open to:
 ---
 
 ## 📧 Connect With Me:
-- **LinkedIn:** [Your Profile](https://www.linkedin.com/in/yourprofile)
-- **Twitter:** [@YourHandle](https://twitter.com/Rowdy_Sammy_)
+- **LinkedIn:** [sopefoluwa bakare](https://www.linkedin.com/in/sopefoluwa-bakare)
+- **Twitter:** [@Rowdy_sammy_](https://twitter.com/Rowdy_Sammy_)
 
 
 ---
